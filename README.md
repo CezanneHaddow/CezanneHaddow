@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CezanneHaddow
+- 👀 I’m interested in all things business related
+- 🌱 I’m currently learning about onboarding 
+- 💞️ I’m looking to collaborate on Mycelium tasks
+- 📫 How to reach me cezanne@mycelium.ventures
